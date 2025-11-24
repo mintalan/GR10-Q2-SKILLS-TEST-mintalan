@@ -1,0 +1,1 @@
+# GR10-Q2-SKILLS-TEST-mintalan
